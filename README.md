@@ -1,1 +1,1 @@
-# Rothko painting
+# Rotko painting
